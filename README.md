@@ -10,3 +10,4 @@ http://racialcapitalism.ucdavis.edu/wp-content/uploads/2019/01/dubois-princess-s
 https://www.youtube.com/watch?v=REo_gHIpvJc
 # the price of liberty is eternal vigilance
 # chrysalis and holding onto a dream
+# progress theater https://progresstheatre.com
